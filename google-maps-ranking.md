@@ -72,7 +72,7 @@ Wir glauben an die **Stärke lokaler Unternehmen** und unterstützen sie dabei, 
 
 Verwandeln Sie potenzielle Kunden in Käufer, indem Sie dort sichtbar werden, wo Ihre Zielgruppe sucht. Mit Trelios steigern Sie **Anfragen**, **Besuche** und sichern sich **langfristigen Erfolg** in Ihrer Region.
 
-[Trelios](https://trelios.de/)
+[Trelios](https://trelios.de/) <br/>
 [Google Maps Profil](https://maps.app.goo.gl/Ay1exRQdGC37LTgG8)
 
 
